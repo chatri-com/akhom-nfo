@@ -1,2 +1,2 @@
-# my-prof-bio
-🔭 Chatri Khatfan ∙ Quantum &amp; AI Explorer 🤖
+# chatri-com
+⚛ Chatri Khatfan ∙ Quantum &amp; AI Explorer ⚛
